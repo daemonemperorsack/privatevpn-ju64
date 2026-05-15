@@ -1,4 +1,4 @@
-
+Get the ultimate PrivateVPN extension with PrivateVPN smart Extension: WireGuard-support & money-back-guarantee. Featuring WireGuard-support and money-back-guarantee, it's the
 
 
 
